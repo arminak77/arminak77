@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arminak77
 - 👀 I’m interested in money.
-- 🌱 I’m currently learning trading..
+- 🌱 I’m currently learning trading..1
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
